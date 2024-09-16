@@ -1,6 +1,15 @@
 https://macrolorblx.com/how-to-unblock-websites-on-school-chromebook-in-2024/
 
-
+https://school.com.apps.dj/
+https://wish.co.tobuy.us/
+https://sites.google.com/view/42unbed
+https://sites.google.com/view/meximath
+https://sich.ljhb.se/
+https://become.a.highdesertcoders.com/
+https://surfdoge.pro/
+https://historyfacts.7s.com.tr/
+https://education.ca.ospa.fi/
+https://pifacts.n43.pw/
 
 Main Link:
 https://brunysixls.pages.dev 
