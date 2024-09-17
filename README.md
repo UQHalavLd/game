@@ -1,3 +1,18 @@
+https://stella.ccsd.store/
+https://stella.ccsd.me/
+https://mendes.life/
+https://thecoolwasd.vercel.app/
+https://quickbooks.spanishlearning.com.ar/
+https://mathandenglish.soapagent.com/
+https://hugzies4youu.videospeed.cl/
+https://kawaii-academy.nlstar.club/
+https://i-wuv-you.sinewave.cc/
+https://mwah-mwah.spectrumhealing.info/
+https://educationalwork.uk.to/
+https://onlinetutor.fr.to/
+https://mathwork.ftp.sh/
+
+
 https://macrolorblx.com/how-to-unblock-websites-on-school-chromebook-in-2024/
 
 https://school.com.apps.dj/
