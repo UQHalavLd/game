@@ -1,3 +1,7 @@
+https://github.com/FreeTubeApp/FreeTube?tab=readme-ov-file#download-links
+
+https://freetubeapp.io/#download
+
 https://stars.gq/
 
 https://kazw.net/
