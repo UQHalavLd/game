@@ -1,3 +1,6 @@
+https://github.com/UseInterstellar/Interstellar
+
+
 https://github.com/FreeTubeApp/FreeTube?tab=readme-ov-file#download-links
 
 https://freetubeapp.io/#download
